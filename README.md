@@ -1,2 +1,0 @@
-# zzak.io
-zzak.io
